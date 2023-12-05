@@ -1,0 +1,1 @@
+- Olá meus companheiros, sou CC23627, sou petista e budista, ao lado de meu amigo Cançado
