@@ -1,1 +1,1 @@
-- Olá meus companheiros, sou CC23627, sou petista e budista, ao lado de meu amigo Cançado
+Todos estão presos à 1 fato.
